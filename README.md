@@ -1,4 +1,4 @@
-# The-Piedmont-Blues
+# The Piedmont Blues
 
 The Piedmont Blues is a musical genre that is composed of complex fingerpicking patterns applied to guitars. This type of guitar music got its rise in Durham, addressing social issues and sparking the emergence of many talented guitarists in North Carolina. The Piedmont Blues have a rich history, and its influence presides over even today’s music.
 
